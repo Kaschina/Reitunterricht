@@ -1,6 +1,6 @@
 Donnerstag, 16.01.2013: Reitstunde bei Frau Eckert, Pferd hat frei 
 
-Freitag,    17.01.2013: Reitplatz.
+Freitag,    17.01.2013: Reitplatz
                         - positiv: guter Schritt, antraben durch Einatmen klappt gut
                         - negativ: zuviel Gehaue von mir, zuviel Ungeduld, zu wenig gelobt
                         
